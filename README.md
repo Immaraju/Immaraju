@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm IMMARAJU SRILEKHA</h1>
-- 👨‍💻 All of my projects are available at [https://github.com/Immaraju](https://github.com/Immaraju)
+- 👨‍💻 All of my projects are available at [https://github.com/](https://github.com/)
 
 - 📫 How to reach me **immarajusrilekha@gmail.com**
 
