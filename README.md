@@ -2,7 +2,6 @@
 
 - 📫 How to reach me **immarajusrilekha@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1g4SZqBHtFzdUSkPQHjuMfmkRt-8vefEp/view?usp=sharing](https://drive.google.com/file/d/1g4SZqBHtFzdUSkPQHjuMfmkRt-8vefEp/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
